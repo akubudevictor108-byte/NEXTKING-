@@ -1,0 +1,2 @@
+# NEXTKING-
+NO EXCUSE 
